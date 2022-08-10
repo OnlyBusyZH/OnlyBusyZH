@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @OnlyBusyZH
+- 👀 I’m interested in known everything about: Robotics, Domotics, Artificial Intelligence, and some programming lenguage.
+- 🌱 I’m currently learning Robotics, Domotics, and training me in Pyhthon Lenguage.
+- 💞️ I’m looking to collaborate on some innovator projects that are in or releationed with my interesting topics
+- 📫 You can mail me to josezuncaz@gmail.com or jazuniga19@outlook.com 
+- My biggest dream is built an entrepenourship named ZHEvolution
